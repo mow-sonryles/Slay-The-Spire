@@ -238,4 +238,4 @@ Slay the Spire is available as a complete free version with all features and upd
 Don't wait any longer! Download Slay the Spire free today and dive into the world of strategic deck-building adventures!
 
 ---
-**Last updated:** 2026-09-21 21:20:15 UTC
+**Last updated:** 2026-09-22 00:21:02 UTC
